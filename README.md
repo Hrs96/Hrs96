@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cybersecurity.
 - 🌱 I’m currently learning Java script.
 - 💞️ I’m looking to collaborate with world best cyber Firm.
-- 📫 How to reach me --thegamingworldindian@gmail.com
+- 📫 How to reach me thegamingworldindian@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: idk about Coding.
 
